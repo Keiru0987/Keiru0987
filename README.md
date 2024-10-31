@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Maths and Data Structure
 - 💬 Ask me about My Goals
 - 📫 How to reach me: rushirajrana94@gmail.com
-- ⚡ Fun fact: I LOVE APPLE
+- ⚡ Fun fact: I Love cakes
 
